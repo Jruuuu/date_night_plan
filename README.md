@@ -4,7 +4,7 @@
 
 ### 📆 August 2025
 
-#### 💝 Wednesday, August 7, 2025
+#### 💝 Thursday, August 7, 2025
 - **7:00 PM - 9:30 PM:** ✅ Available
 
 #### 💝 Friday, August 15, 2025
