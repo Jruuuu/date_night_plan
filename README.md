@@ -30,7 +30,8 @@
 
 1. 🔍 Find your preferred date and time
 2. 📲 Text JR
-3. 💾 Save the document
+3. 💾 Jr will Update the document
+4. Save Link if you need a reminder
 
 
 ## 📌 Notes
