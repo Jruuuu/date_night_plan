@@ -22,7 +22,7 @@
 - **7:00 PM - 9:30 PM:** ✅ Available
 
 #### 💝 Thursday, September 11, 2025
-- **7:00 PM - 9:30 PM:** ✅ Available
+- **7:00 PM - 9:30 PM:** ✅ Alex & Brit
 
 ---
 
