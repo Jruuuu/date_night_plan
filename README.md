@@ -7,11 +7,11 @@
 #### 💝 Thursday, August 7, 2025
 - **7:00 PM - 9:30 PM:** ✅ John & Anna
 
-#### 💝 Friday, August 15, 2025
-- **7:00 PM - 9:30 PM:** ✅ Available
+#### 💝 Tuesday, August 19, 2025
+- **7:00 PM - 9:30 PM:** ✅ Mom & Crystal
 
 #### 💝 Thursday, August 21, 2025
-- **7:00 PM - 9:30 PM:** ✅ Available
+- **5:00 PM - 7:00 PM:** ✅ Ehren & Tiff
 
 #### 💝 Thursday, August 28, 2025
 - **7:00 PM - 9:30 PM:** ✅ Available
